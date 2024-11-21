@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Rutuja Nar</h1>
 <h3 align="center">A passionate Software Engineer from India</h3>
 
-- 🌱 I’m currently learning **Java**
+- 🌱 I’m currently working at Ander Baher as a Junior Software Engineer
 
 - 💬 Ask me about **java,c++ and mysql**
 
