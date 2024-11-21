@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **narrutuja@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19MLPG3WNQMHRLHpPp1Mruq47FRgV0Lkg/view?usp=sharing](https://drive.google.com/file/d/19MLPG3WNQMHRLHpPp1Mruq47FRgV0Lkg/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/17Av74SL-NqWg6V02jKZpFBgWq4fh-f9z/view?usp=sharing](https://drive.google.com/file/d/17Av74SL-NqWg6V02jKZpFBgWq4fh-f9z/view?usp=sharing)
 
 - ⚡ Fun fact **I can sing**
 
